@@ -1,4 +1,4 @@
-## What George Muller Understood about life
+## Come and See a Man who Told me all That I ever Did
 
 ![Samaritan woman at the well](https://i.etsystatic.com/8834150/r/il/f43a9d/1493665702/il_794xN.1493665702_hm88.jpg)
 
