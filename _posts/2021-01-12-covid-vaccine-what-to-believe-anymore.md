@@ -1,4 +1,4 @@
-## Idk what to believe anymore?
+## Idk what to believe anymore!
 
 "I don't know what to believe anymore!" is a common phrase I heard nowadays from folks that I converse with on the topic on the COVID-19 mRNA vaccines.
 
