@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
+Upcoming soon:
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+- What George Muller understood about witnessing for Christ
+- COVID Vaccine mandates -- what to believe anymore?
