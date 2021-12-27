@@ -1,6 +1,6 @@
 ## Come and See a Man who Told me all That I Ever Did
 
-![Samaritan woman at the well](https://i.etsystatic.com/8834150/r/il/f43a9d/1493665702/il_794xN.1493665702_hm88.jpg)
+![Samaritan woman at the well](https://i2.wp.com/www.michelebarnes.me/wp-content/uploads/2017/03/IMG_0307.jpg?resize=300%2C300)
 
 George Muller understood this about life: people are not as impressed at what man can do for God, but what God can do through a man. That's how he lived his life. 
 
