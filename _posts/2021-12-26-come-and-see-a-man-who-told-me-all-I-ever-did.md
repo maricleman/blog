@@ -4,7 +4,7 @@
 
 George Muller understood this about life: people are not as impressed at what man can do for God, but what God can do through a man. That's how he lived his life. 
 
-Muller built the orphanage on this principle. He writes in his journal not primarily about having compassion on orphans, but about being a display to a lost and dying world that God is real and that He really does work in supernatural ways. And so, George Muller was able to provide for over 10,000 orphans without ever asking or campaigning for support. He simply prayed.
+Muller built the orphanage on this principle. He writes in his journal not primarily about having compassion on orphans, but about being a display to a lost and dying world that God is real and that He really does work in supernatural ways. George Muller was able to provide for over 10,000 orphans without ever asking or campaigning for support. He simply prayed.
 
 I cannot help but ask: what can we learn from this saint who has gone before us?
 
